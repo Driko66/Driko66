@@ -6,4 +6,4 @@
 - ⚡  I really like playing futsal
 
 
-![] (https://tenor.com/pt-PT/view/waiting-gif-23395435)
+![](https://tenor.com/pt-PT/view/waiting-gif-23395435)
