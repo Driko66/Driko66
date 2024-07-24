@@ -3,7 +3,6 @@
 - 🌱 I’m currently studying
 - 💞️ I’m looking to try to improve
 - 📫 I live in the city of Virmond-Pr
-- ⚡  I really like playing futsal
-
+- ⚡  I really like playing futsa
 
 ![](https://tenor.com/pt-PT/view/waiting-gif-23395435)
